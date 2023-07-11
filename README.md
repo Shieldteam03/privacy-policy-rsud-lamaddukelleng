@@ -1,4 +1,4 @@
-**Privacy Policy**
+change
 
 Simpel development built the Antrian Online RSUD Lamaddukelleng app as a Free app. This SERVICE is provided by Simpel Development at no cost and is intended for use as is.
 
